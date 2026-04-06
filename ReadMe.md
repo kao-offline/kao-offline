@@ -1,4 +1,5 @@
 💫 About Me:
+
 💍Studying: SSPŠ<br>🏗️Building: SkautReg and BeamCMS<br>🔬Experimenting: Ai, Tracking, Splatting technologies<br><br>🧤For Fun: SpilledCinema, LockedIN, Wormhole, WhoRemains
 
 🌐 Socials:
